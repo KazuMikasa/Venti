@@ -1,7 +1,11 @@
 # Venti-beta
 An exclusive bot for Game Over server
 
-DM me for invite btw
+
+![image](https://cdn.discordapp.com/attachments/1081886730048766022/1081922288112390274/A.png)
 
 
-![image](https://user-images.githubusercontent.com/123092306/215779182-68be5c0b-e1f8-4cb0-8620-4430877f89dc.png)
+DM this worthless guy for invite.-.
+
+
+![image1](https://cdn.discordapp.com/attachments/1081886730048766022/1081922287835562054/image.png)
